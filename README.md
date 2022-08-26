@@ -1,5 +1,5 @@
 # Credit
-Youtube|
-Tiktok|
+Youtube |
+Tiktok |
 Google<br>
 I forgot the source
